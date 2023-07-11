@@ -1,1 +1,0 @@
-# RESOL_EXAMEN
